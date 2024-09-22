@@ -1,7 +1,7 @@
 # Hi, i'm Divina 🪷
 👩🏻‍💻 Currently studying Bachelor of IT at Victoria University<br>
 ☕ Mbti - intj<br>
-📷 I also do content creation on the side!
+📷 I also do content creation on the side!<br>
 📕 Working as Peer Career Advisor at uni<br>
 
 ## 🛠 Working on...
